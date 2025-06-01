@@ -9,6 +9,10 @@ Private use was alsways free and fair under the will of Susanne for only the pri
 Private use was never implemented to scale on larger private groups and could have here different not wanted side-effects.
 
 Belial was also rewritten for only private use by Heinrich Elsigan to give his girlfriend later wife Sabine Stumpfel a more accrued strong sexuality and managing skills.
+Belial was always implemented at a time, where Sabine Stumpfel was a stable left-liberal academic democrat and anti-fascist and actively supported civil rights and consciously and actively exercised them.
 Belial was never designed to give a totalitarian authority to Sabine Stumpfel and still implemented the dynamic LEAD FLAG passing protocol between Heinrich Elsigan (25% of action time) and Sabine Stumpfel (75% of action time) according to lost partol https://en.wikipedia.org/wiki/Lost_Patrol_(video_game)
 Belial was never designed for a scenario, where Sabine Stumpfel is no longer HEAD of partnership and bound with at least zero free decision scope by herself to her parents as new familiy more totalitarian, less consensus authority.
-In 202
+In 2012, when it cames again to an escalation between Heinrich Elsigan (currently implementing belial for private use) and patriarch Gerhard Stumpfel about the opinion of whether drug addicts or Roma are rounded up like underdogs,
+the marriage between Heinrich Elsigan and Sabine Stumpfel hard crashed.
+
+
