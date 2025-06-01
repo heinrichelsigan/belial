@@ -10,7 +10,7 @@ However Sussane Hostek now Susanne Niescher also avoids an excessive degree of i
 The person using Belial as a daemon has the following abilities through Belial:
 Grab their own breasts in a very provocative manner during sex.
 Make a slightly submissive pout.
-Make "uh, uh" (ah) noises that make their partner feel like a very powerful and honest sexual person.
+Make "uh, uh" (uh/ah) noises that make their partner feel like a very powerful and honest sexual person.
 The dimensioning of  "uh, uh" (ah) noises is very important, because it must be protected to avoid the partner becoming a brutal dishonest man.
 Breaking the honest protection could be seen as terrorist producing or undermining western democratic order or military waepon and is limited under US legal authority of US patriot act and EU waepons export legalisations. There was no appereance at Susanne or Heinrich, that broke honest powerful protection.
 
