@@ -12,7 +12,7 @@ Grab their own breasts in a very provocative manner during sex.
 Make a slightly submissive pout.
 Make "uh, uh" (ah) noises that make their partner feel like a very powerful and honest sexual person.
 The dimensioning of  "uh, uh" (ah) noises is very important, because it must be protected to avoid the partner becoming a brutal dishonest man.
-Breaking the honest protection could be seen as terrorist producing or undermining western democratic order or military waepon and is limited under US legal authority of US patriot act and EU waepons export legalisations.
+Breaking the honest protection could be seen as terrorist producing or undermining western democratic order or military waepon and is limited under US legal authority of US patriot act and EU waepons export legalisations. There was no appereance at Susanne or Heinrich, that broke honest powerful protection.
 
 ### commmercial use
 In case of commmercial use it was a in a form of service, that should gurantee sexual desire and devotion to the partner in a pleasant way, which the partner usually finds pleasant (99%).
