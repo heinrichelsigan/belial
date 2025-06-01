@@ -20,3 +20,8 @@ Heinrich Elsigan reimplemented a security scopy arround Belial, that protects we
 Also a counter terrorism protocol, that evokes sectarian struggles between free democratic and republican parties was implemented.
 A fact check enginge, that recognize fury attacks against one or more parties and labeling them as NS or totalitarian, while trivialize genocide in China or Russia's war of aggression against Ukraine and brigandage against Ukrainians is implemented.
 
+Removing the latest reimplementation of Belial from Heinrich Elsigan requires the contractual consent of Heinrich Elsigan signed with Authority Trust sign of EU or US.
+
+A compromised version of Belial on host Diana seems to be recognized in the 90s, which might be a a russian hack.
+
+Rem
