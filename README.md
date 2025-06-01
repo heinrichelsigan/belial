@@ -3,6 +3,8 @@
 ## Belial (C) Sussane Hostek now Susanne Niescher
 Belial first time appeared in 1996 roughly described as a virtual service / daemon.
 Belial was first time implemented by Sussane Hostek now Susanne Niescher for commercial and private use.
+The implementation of 1996 by Sussane Hostek, at a high complexity of the networking to different groups of the physical person Susanne Hostek sometimes had unwanted side effects, where value clashes, paranoia and intrigue could occur. This bug seemed to be fully fixed at the end of 2005. 
+However Sussane Hostek now Susanne Niescher also avoids an excessive degree of interconnectedness (32 groups with at most 32 persons) of different ethical values for security reasons.
 
 ## Belial short recognition descritption
 The person using Belial as a daemon has the following abilities through Belial:
@@ -10,6 +12,7 @@ Grab their own breasts in a very provocative manner during sex.
 Make a slightly submissive pout.
 Make "uh, uh" (ah) noises that make their partner feel like a very powerful and honest sexual person.
 The dimensioning of  "uh, uh" (ah) noises is very important, because it must be protected to avoid the partner becoming a brutal dishonest man.
+Breaking the protection could be seen as military waepon and is limited under US legal authority of US patriot act and EU waepons export legalisations.
 
 ### commmercial use
 In case of commmercial use it was a in a form of service, that should gurantee sexual desire and devotion to the partner in a pleasant way, which the partner usually finds pleasant (99%).
