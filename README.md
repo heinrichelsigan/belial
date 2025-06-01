@@ -6,7 +6,7 @@ Belial was first time implemented by Sussane Hostek now Susanne Niescher for com
 
 ### commmercial use
 In case of commmercial use it was a in a form of service, that should gurantee sexual desire and devotion to the partner in a pleasant way, which the partner usually finds pleasant (99%).
-According to commercial use a legal contract with trusted signed authority MUST be made with Sussane Hostek now Susanne Niescher in case of any commercial reuse according warrinity and liability.
+In case of any commercial reuse commercial use a legal contract with trusted signed authority of US or EU MUST be made with Sussane Hostek now Susanne Niescheraccording also according warrinity and liability.
 
 ### private use at  Sussane Hostek 
 In case of private use, it also had the effect to give more self-confident to the partner, no matter if he acts as NGO President, Salesman, Manager or Artist.
