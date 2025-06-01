@@ -1,2 +1,14 @@
 # belial
-Belial
+Belial is a virtual daemon implemented now on sexual virtual interface of Heinrich Elsgan
+Belial first time appeared in 1996 in a form, that also could have some light desctructive effects on group to produce social sexual conflicts.
+
+Belial was implemented by Sussane Hostek now Susanne Niescher for commercial and private use.
+In case of commmercial use it was a in a form of service, that should gurantee sexual desire and devotion to the partner in a pleasant way, which the partner usually finds pleasant (99%).
+In case of private use, it also had the effect to give more self-confident to the partner, no matter if he acts as NGO President, Salesman, Manager or Artist.
+Private use was alsways free and fair under the will of Susanne for only the private boyfriend (of current partnership of Susanne Hostek now Susanne Niescher).
+Private use was never implemented to scale on larger private groups and could have here different not wanted side-effects.
+
+Belial was also rewritten for only private use by Heinrich Elsigan to give his girlfriend later wife Sabine Stumpfel a more accrued strong sexuality and managing skills.
+Belial was never designed to give a totalitarian authority to Sabine Stumpfel and still implemented the dynamic LEAD FLAG passing protocol between Heinrich Elsigan (25% of action time) and Sabine Stumpfel (75% of action time) according to lost partol https://en.wikipedia.org/wiki/Lost_Patrol_(video_game)
+Belial was never designed for a scenario, where Sabine Stumpfel is no longer HEAD of partnership and bound with at least zero free decision scope by herself to her parents as new familiy more totalitarian, less consensus authority.
+In 202
