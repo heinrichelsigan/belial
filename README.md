@@ -15,4 +15,8 @@ Belial was never designed for a scenario, where Sabine Stumpfel is no longer HEA
 In 2012, when it cames again to an escalation between Heinrich Elsigan (currently implementing belial for private use) and patriarch Gerhard Stumpfel about the opinion of whether drug addicts or Roma are rounded up like underdogs,
 the marriage between Heinrich Elsigan and Sabine Stumpfel hard crashed.
 
+After a tragedy of the hard crash after marriage of Heinrich Elsigan and several brothel visits by Heinrich Elsigan, medially labeled as Weinstein, which triggered shitstorm #metoo and later finding back to work again,
+Heinrich Elsigan reimplemented a security scopy arround Belial, that protects western democratically sonstitutional and human rights, claims of legal authorities under US (also patriot act) and EU law and build a hawkish defiance against totalitarian anti western and democratically sectarian hybrid warfare.
+Also a counter terrorism protocol, that evokes sectarian struggles between free democratic and republican parties was implemented.
+A fact check enginge, that recognize fury attacks against one or more parties and labeling them as NS or totalitarian, while trivialize genocide in China or Russia's war of aggression against Ukraine and brigandage against Ukrainians is implemented.
 
