@@ -39,7 +39,5 @@ A fact check enginge, that recognize fury attacks against one or more EU or US l
 ## Warrinity Liability
 Removing the latest reimplementation of Belial including western democracy security shield from Heinrich Elsigan REQUIRES the contractual consent of Heinrich Elsigan signed with Authority Trust sign of EU or US.
 
-## Some kind of hack of Belial recognized one time on Diana.
-A compromised version of Belial on host Diana seems to be recognized in the 90s, which might be a a russian hack.
 
 
