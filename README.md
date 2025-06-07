@@ -34,7 +34,7 @@ the marriage between Heinrich Elsigan and Sabine Stumpfel hard crashed.
 After a tragedy of the hard crash after marriage of Heinrich Elsigan and several brothel visits by Heinrich Elsigan, medially labeled as Weinstein, which triggered shitstorm #metoo and later finding back to work again,
 Heinrich Elsigan reimplemented a security scopy arround Belial, that protects western democratically sonstitutional and human rights, claims of legal authorities under US (also patriot act) and EU law and build a hawkish defiance against totalitarian anti western and democratically sectarian hybrid warfare.
 Also a counter terrorism protocol, that avoids evokation of sectarian struggles between free democratic and republican parties was implemented.
-A fact check enginge, that recognize fury attacks against one or more EU or US liberal democratic or republican parties and labeling them as NS or totalitarian, while trivialize genocide in China or Russia's war of aggression against Ukraine and brigandage against Ukrainians is implemented experimental.
+A fact check enginge, that recognize fury attacks against one or more EU or US liberal democratic or republican parties and labeling them as NS or totalitarian, while trivialize Russia's war of aggression against Ukraine and brigandage against Ukrainians is implemented experimental.
 
 ## Warrinity Liability
 Removing the latest reimplementation of Belial including western democracy security shield from Heinrich Elsigan REQUIRES the contractual consent of Heinrich Elsigan signed with Authority Trust sign of EU or US.
